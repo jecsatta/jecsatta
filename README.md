@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @jecsatta
+- 📫 How to reach me: jecsatta@gmail.com
